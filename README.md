@@ -16,3 +16,8 @@
 <p align="center">
   <img src="https://file.garden/aPuRwU9PkXWKuLo6/Untitled30_20260614113506.png" alt="di">
 </p>
+ㅤ
+ㅤ
+ㅤ
+
+> github completely butchered this. it looks better in the preview, i swear.
