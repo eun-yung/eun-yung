@@ -20,4 +20,4 @@
 ㅤ
 ㅤ
 
-> github completely butchered this. it looks better in the preview, i swear.
+> github completely butchered this. it looks better in the preview, i swear. view on pc
